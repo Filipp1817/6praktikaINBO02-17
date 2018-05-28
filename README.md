@@ -1,1 +1,1 @@
-# 6praktikaINBO02-17
+# 6praktikaINBO02-17   Герлиани Филипп ИНБО-02-17
